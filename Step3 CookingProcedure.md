@@ -44,7 +44,7 @@
 
 ◼ Roll gently between your palms and gently flatten. Make all aloo tikki this way.
 
-**Frying Aloo Tikki :- **
+**Frying Aloo Tikki :-**
 
 ◼ Heat 2 tablespoons oil till on a skillet or tawa or frying pan till it is medium hot. Gently place the tikki and begin to pan-fry them.
 
